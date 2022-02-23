@@ -64,9 +64,4 @@ https://cloud.189.cn/t/j6juMb2mmIre (访问码:9xct)
 
 ```
 
-## 赞赏码
-如果对你有帮助的话要不请作者喝杯奶茶?(嘿嘿)👍 (打赏时请留言你的ID
-
-![](https://s3.bmp.ovh/imgs/2022/02/185eb77e0285777a.png)
-
 
